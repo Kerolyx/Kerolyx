@@ -1,5 +1,4 @@
-- 👋 ola eu sou Kerolyx
-- seja bem-vindo ao meu perfil.
+- 👋 ola eu sou Kerolyx, bem-vindo ao meu perfil.
 - 🥰 eu gosto de musica, dança, cozinhar
 - ⚽️gosto de jogar vôlei e futsal
 - 🌱 estou estudando no ensino médio. vou fazer intercâmbio na irlanda 
