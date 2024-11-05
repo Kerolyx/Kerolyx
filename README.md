@@ -1,11 +1,12 @@
 - 👋 ola eu sou Kerolyx
 - seja bem-vindo ao meu perfil.
-- 🥰 eu gosto de musica, dança e cozinhar 
+- 🥰 eu gosto de musica, dança, cozinhar
+- ⚽️gosto de jogar vôlei e futsal
 - 🌱 estou estudando no ensino médio. vou fazer intercâmbio na irlanda 
-- 💞️ eu tenho 
-- 📫 
-- 😄 
-- ⚡ 
+- 💞️ no momento estou em jm relacionamento serio...
+- 📫 vou fazer intercâmbio pra Irlanda em 2025
+- ♓️ meu signo é peixes
+- ⚡ quero conquistar minha casa própria, meu carro(saveiro ou civic)
 
 
 
